@@ -1,1 +1,5 @@
-# raza
+- 👋 Hi, I’m MOHAMMAD RAZA
+- 👀 I’m interested in start-up
+- 🌱 I’m currently learning Python and Web Devlopment
+- 📫 How to reach me Dm me on insta @itsraza03
+- ⚡ Fun fact: 😂😂
